@@ -1,1 +1,0 @@
-# MMSG-friends-licence
